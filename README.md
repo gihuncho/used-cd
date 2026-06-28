@@ -6,9 +6,9 @@
 3. Polkadot Stingray - 何者
 4. Eve - Bunka
 5. ZUTOMAYO - Gusare
-6. Akai Ko-en - Kienai
-7. Chilli Beans. - Chilli Beans.
-8. Chilli Beans. - mixtape
+6. 판매완료 ~~Akai Ko-en - Kienai~~
+7. 판매완료 ~~Chilli Beans. - Chilli Beans.~~
+8. 판매완료 ~~Chilli Beans. - mixtape~~
 9. XXX - Language
 10. Metallica - Hardwired…To Self-Destruct
 11. Royal Blood - Back to the Water Below
