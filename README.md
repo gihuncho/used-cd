@@ -1,5 +1,6 @@
 # 중고CD 판매현황
 
+![topster](https://raw.githubusercontent.com/gihuncho/used-cd/refs/heads/main/chart.png)
 1. Cody・Lee(李) - 心拍数とラヴレター、それと優しさ
 2. Aimer - One / Hana No Uta / Rokutouseino Yoru Magic Blue Version
 3. Polkadot Stingray - 何者
