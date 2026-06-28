@@ -3,7 +3,7 @@
 ![topster](https://raw.githubusercontent.com/gihuncho/used-cd/refs/heads/main/chart.png)
 1. Cody・Lee(李) - 心拍数とラヴレター、それと優しさ
 2. Aimer - One / Hana No Uta / Rokutouseino Yoru Magic Blue Version
-3. 판매완료 ~~Polkadot Stingray - 何者~~
+3. Polkadot Stingray - 何者
 4. Eve - Bunka
 5. ZUTOMAYO - Gusare
 6. 판매완료 ~~Akai Ko-en - Kienai~~
