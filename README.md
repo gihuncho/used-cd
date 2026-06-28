@@ -20,3 +20,6 @@
 17. 판매완료 ~~Royal Blood - Royal Blood~~
 18. Thornapple - I Often Stammer and Forget the Way to Sleep (2013 Remaster)
 19. Kiha & The Faces - mono
+20. yeule - softscars
+21. Thornapple - Capital Disease
+22. Thornapple - Strange Weather
