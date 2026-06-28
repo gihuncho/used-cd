@@ -10,7 +10,7 @@
 7. 판매완료 ~~Chilli Beans. - Chilli Beans.~~
 8. 판매완료 ~~Chilli Beans. - mixtape~~
 9. XXX - Language
-10. Metallica - Hardwired…To Self-Destruct
+10. 판매완료 ~~Metallica - Hardwired…To Self-Destruct~~
 11. Royal Blood - Back to the Water Below
 12. MASS OF THE FERMENTING DREGS - No New World
 13. MASS OF THE FERMENTING DREGS - Awakening:Sleeping
@@ -19,7 +19,7 @@
 16. Tyler, The Creator - CALL ME IF YOU GET LOST: The Estate Sale
 17. 판매완료 ~~Royal Blood - Royal Blood~~
 18. Thornapple - I Often Stammer and Forget the Way to Sleep (2013 Remaster)
-19. Kiha & The Faces - mono
+19. 판매완료 ~~Kiha & The Faces - mono~~
 20. yeule - softscars
 21. Thornapple - Capital Disease
 22. Thornapple - Strange Weather
