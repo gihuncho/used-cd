@@ -12,8 +12,8 @@
 9. XXX - Language
 10. 판매완료 ~~Metallica - Hardwired…To Self-Destruct~~
 11. Royal Blood - Back to the Water Below
-12. MASS OF THE FERMENTING DREGS - No New World
-13. MASS OF THE FERMENTING DREGS - Awakening:Sleeping
+12. 판매완료 ~~MASS OF THE FERMENTING DREGS - No New World~~
+13. 판매완료 ~~MASS OF THE FERMENTING DREGS - Awakening:Sleeping~~
 14. 판매완료 ~~Rage Against the Machine - The Battle of Los Angeles~~
 15. Tyler, The Creator - CALL ME IF YOU GET LOST
 16. Tyler, The Creator - CALL ME IF YOU GET LOST: The Estate Sale
